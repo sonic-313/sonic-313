@@ -10,5 +10,6 @@
 - EU MORO COM A MINHA MÃE E TENHO PROBLEMAS DE PACIÊNCIA.
 
  ![](https://media.tenor.com/AORFHcrgjNEAAAAi/fnf-vs-infinite-friday-night-funkin.gif)
+ 
  ![](https://media1.tenor.com/m/gQgEmjyXOAIAAAAd/shadow-cool-shadow.gif)
- ![](
+
